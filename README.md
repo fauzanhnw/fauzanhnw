@@ -4,7 +4,6 @@
 - 🔭 I’m currently studying on **Politeknik Negeri Batam**
 
 - 📫 How to reach me **fauzanhidayat679@gmail.com**
-<p>https://fauzanhnw.my.id
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
